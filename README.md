@@ -12,3 +12,4 @@ only for knowing sleep time
 
 <img width="1880" height="625" alt="698916721-53d6c106-e948-4b8a-b160-6f691edc5fc9" src="https://github.com/user-attachments/assets/1f1fafc9-181d-49f5-b8c6-7d20bbc9bac8" />
 
+https://dornisoft.es/dornioraculo/
